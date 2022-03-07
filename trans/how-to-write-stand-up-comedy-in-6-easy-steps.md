@@ -83,10 +83,3 @@ Charley Case 是以为非裔美洲杂耍表演者，据说在 19 世纪 80 年�
 ## 参考
 
 * [原文](https://www.masterclass.com/articles/how-to-write-stand-up-comedy-in-6-easy-steps)
-
-What Is Stand-Up Comedy?
-When Did Stand-Up Comedy Originate?
-What Is a Stand-Up Comedy Set?
-How to Write Stand-Up Comedy in Six Steps
-8 Tips and Tricks for Writing Stand-Up Comedy
-Learn More About Judd Apatow's MasterClass
